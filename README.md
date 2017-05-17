@@ -1,2 +1,7 @@
 # hello-world
-First Repository
+
+Wassup niggas,
+
+I eat ass.
+
+Peace.
